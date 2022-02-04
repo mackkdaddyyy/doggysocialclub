@@ -1,2 +1,2 @@
 # doggysocialclub
-Ideas of lounge for humans &amp; dogs to work &amp; play
+Ideas of lounge for humans and dogs to work and play
